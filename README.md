@@ -1,0 +1,57 @@
+# Safety Tips
+
+Safety tips for Chicago Uber drivers — night driving, passenger safety, car safety, and what to do in an emergency. Written for drivers, by drivers.
+
+## Before every shift
+
+- Check tires, lights, brakes, and wipers before you roll out.
+- Keep your phone charged and a car charger in the car.
+- Tell someone your driving hours and roughly where you'll be.
+- Keep your gas tank at least half full on night shifts.
+- Lock your doors once a rider is in, and keep your windows up in unfamiliar areas.
+
+## Picking up riders
+
+- Match the rider's name and destination before you unlock the doors. Don't ask "are you my rider?" — ask "what's your name?"
+- If the name, face, or destination doesn't match, don't start the trip. Cancel and drive away.
+- Trust your gut. If a pickup feels wrong, cancel. No fare is worth a bad situation.
+- Pick up in well-lit, busy spots when you can. Avoid dark side streets and alleys at night.
+
+## While driving
+
+- Keep your doors locked and stay aware of your mirrors.
+- Don't argue with a rider. Stay calm, end the trip safely if you need to, and report it after.
+- Keep valuables out of sight. Don't leave a bag or phone where a rider can grab it.
+- If a rider is aggressive, threatening, or making you feel unsafe, pull over in a safe, public, well-lit place and end the trip.
+- Never drive impaired or exhausted. If you're tired, stop. Your safety comes first.
+
+## Night driving in Chicago
+
+- Mornings and evenings only is the schedule we run — know your limits on late nights.
+- Watch for pedestrians, cyclists, and sudden stops, especially downtown and in busy neighborhoods.
+- Keep your headlights on and your windshield clean.
+- Avoid stopping under bridges or in empty lots to wait for a ride. Wait somewhere lit with people around.
+
+## Emergencies
+
+- Call 911 first if anyone is in danger.
+- Use the Uber app's emergency button if you need help during a trip.
+- After you're safe, report the incident in the Uber app and save the trip details.
+- Keep a basic first-aid kit and a flashlight in the car.
+
+## Your car
+
+- Keep your car clean and in good repair — it protects you and your riders.
+- Check your spare tire and jack are in the car.
+- In winter, keep a blanket, gloves, and a phone charger in the car. Chicago cold is no joke.
+
+## Remember
+
+- You can always cancel a trip that doesn't feel safe.
+- You can always end a trip early if you feel unsafe.
+- No rating, no fare, and no streak is worth your safety.
+
+---
+
+*Chicago Uber drivers — drive safe, get home safe.*
+*Contact: chicago.uberdrivers@gmail.com*
